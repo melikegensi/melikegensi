@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://melikegensi.medium.com/](https://melikegensi.medium.com/)
 
-- 💬 Ask me about **Project Management, Agile, Enterpreneurship, Startup Ecosystem**
+- 💬 Ask me about **Project & Product Management, Agile, Enterpreneurship, Startup Ecosystem, Invesment**
 
 - 📫 How to reach me **mlkgnskim@gmail.com**
 
